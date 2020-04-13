@@ -1,0 +1,1 @@
+# Ayumu-s.github.jp
